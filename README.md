@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @HACKERANTGAMING
+- 👋 Hi, I’m @ARISE
 - 👀 I’m interested in HACKING AND GAMING
 - 🌱 I’m currently learning HACKING ON DISCORD AND WIFI PASSWORD CRACKING
 - 💞️ I’m looking for a gf on DISCORD OR REAL LIFE
